@@ -1,0 +1,1 @@
+# EURUSD_test_result
